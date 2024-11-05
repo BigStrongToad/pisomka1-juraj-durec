@@ -1,0 +1,1 @@
+# pisomka1-juraj-durec
